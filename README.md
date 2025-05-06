@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Startups and AI prjects
 - 📫 How to reach me IG-ayotfnil or linkedIn-https://www.linkedin.com/in/soumanil-sarkar-69bb5525b/
 - 😄 Pronouns: py/r
-- 
+  
 
 <!---
 nilsenpai/nilsenpai is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
